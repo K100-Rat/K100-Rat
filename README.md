@@ -1,5 +1,4 @@
-- 👋 @K100-Rat
-- ⚡  Join My Channel On Telegram ( https://t.me/K100_Rat )
+
 
 
 <!---
